@@ -1,6 +1,6 @@
 ### Hi there 👋 👋 👋    
 
-The name's Robbie, 24, just your average gamer. Programmer. Modder. Enjoyer of most things technology related.     
+The name's Robbie, 24, just your average gamer.    Programmer.    Modder.    Enjoyer of most things technology related.     
 
 I play many games, to name a few of my top though I would say are;    
 + [Overwatch](https://playoverwatch.com/en-us/) (3k+ Hours)    
