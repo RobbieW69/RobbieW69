@@ -12,9 +12,10 @@ I play many games, to name a few of my top though I would say;
 + YuGiOh via YGOPRO(ProjectIgnis) and IRL cards (500+ Hours) [[Discord to Get It]](https://discord.gg/ygopro-percy)             
 + Counter Strike: [Global Offensive](https://store.steampowered.com/app/730/CounterStrike_Global_Offensive) (300+ Hours)      
 + [Elsword](https://elsword.koggames.com) (500+ Hours)     
-+ [Brawlhalla](https://store.steampowered.com/app/291550/Brawlhalla) (500+ Hours)      
-+ [GTA:V](https://store.steampowered.com/app/271590/Grand_Theft_Auto_V) (100+ Hours)      
-+ SCP: [Secret Labratory](https://store.steampowered.com/app/700330/SCP_Secret_Laboratory) (500+ Hours) (Modded)          
++ [Brawlhalla](https://store.steampowered.com/app/291550/Brawlhalla) (500+ Hours)          
++ SCP: [Secret Labratory](https://store.steampowered.com/app/700330/SCP_Secret_Laboratory) (500+ Hours) (Modded)     
++ [The Elder Scrolls V: Skyrim Special Edition](https://store.steampowered.com/app/489830/The_Elder_Scrolls_V_Skyrim_Special_Edition) (200 Hours)     
++ [GTA:V](https://store.steampowered.com/app/271590/Grand_Theft_Auto_V) (100+ Hours)  
 
 For the most part I wasn't able to play video games much before I was 18, with Pokemon being the only exception as I had saved enough money from birthday cards ect to buy a Nintendo DS Lite when I was 13/14 and my grandma getting me Soul Silver. Other than that I had the original Xbox and played alot of Shadow The Hedgehog, but since we didn't have internet that was all I was able to do.    
 
