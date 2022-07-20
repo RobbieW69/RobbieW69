@@ -2,7 +2,7 @@
 
 The name's Robbie, 24, just your average gamer. Programmer. Modder. Enjoyer of most things technology related.     
 
-I play many games, to name a few of my top though I would say;    
+I play many games, to name a few of my top though I would say are;    
 + [Overwatch](https://playoverwatch.com/en-us/) (3k+ Hours)    
 + [7 Days to Die](https://store.steampowered.com/app/251570/7_Days_to_Die) (1800+ Hours) (Modded)     
 + Arma II Operation Arrowhead: DayZ Mod (700+ Hours) (Modded) [[How to Play]](https://youtu.be/T82v6GnyR4w)           
