@@ -20,7 +20,7 @@ For the most part I wasn't able to play video games much before I was 18, with P
 
 Once I got my first job I bought the parts for this PC and put it together and downloaded Steam, from there I gained all the hours above.    
 
-At the moment I like to work on modding 7 Days to Die and have been doing so for a while, I also host DnD on Wednesday evenings at 7:30pm CST, chat and game with friends on Discord and enjoy life.     
+At the moment I like to work on modding 7 Days to Die and have been doing so for a while, I also host DnD on Wednesday evenings at 7:30pm CST, chat and game with friends on Discord, and sometimes stream on [Twitch](https://www.twitch.tv/robbiew1337) and enjoy life.     
 
 👋😄
 
